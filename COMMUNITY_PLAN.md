@@ -1,1 +1,4 @@
-Describe the plan to support the community
+2018年6月26号前
+微信群 知识星球 telegram等线上推广以及线下路演,团队直播等社区互动 50万RMB
+2018年6月26号后社区管理,文案编写,直播互动等,100万RMB每年
+社区管理,文案编写,直播互动等,100万RMB每年
