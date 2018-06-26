@@ -4,3 +4,4 @@
 集民主，自由，财富价值于一体的超级代表
 
 
+TRON ONE is SR from Community. Most of the members are fans of TRON, include myself. TRON ONE hopes to connect every ordinary people ,which make everyone could find existence once entry into the bit-world
